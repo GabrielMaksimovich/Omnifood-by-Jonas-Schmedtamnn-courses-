@@ -1,1 +1,1 @@
-# Omnifood-by-Jonas-Schmedtamnn-courses
+# Omnifood-from-Jonas-Schmedtamnn-courses
